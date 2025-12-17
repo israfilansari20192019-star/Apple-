@@ -101,3 +101,4 @@ ch nan hai
 ch na gm b hmm
 rgtgss
 na hmm snnssn
+tr t6
