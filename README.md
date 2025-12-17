@@ -23,3 +23,4 @@ thenndmdm
 hmm snsnnsn
 t hmm me x hmm
 FB nd SB be GH h78
+hmm sm64
